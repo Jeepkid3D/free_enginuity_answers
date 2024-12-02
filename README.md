@@ -5,4 +5,4 @@ need as much help as i can get
 
 i want a program like this to be avalibe for everyone on all devices 
 
-hmu on twitter or insa if inerested @Jeepkid3D on both
+hmu on twitter or insta if inerested @Jeepkid3D on both
